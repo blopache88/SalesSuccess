@@ -1,2 +1,2 @@
 # SalesSuccess
-Sales Success - improve sales performance
+Sales Success - improve enterprise b2b sales teams performance
